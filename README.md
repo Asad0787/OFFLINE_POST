@@ -5,7 +5,7 @@ https://github.com/user-attachments/assets/2a77e4f6-2c40-401d-b7cc-2c6b8b3f3c23
 # 7 DAYS TRAIL FREE YOUR KEY
 [![Better Stack Badge](https://uptime.betterstack.com/status-badges/v1/monitor/1q0mn.svg)](https://uptime.betterstack.com/?utm_source=status_badge)
 
-![img_1723715626893_1](https://raw.githubusercontent.com/Asad0787/OFFLINE_POST/refs/heads/main/Screenshot/IMG_20250222_112511.jpg)
+![img_1723715626893_1](https://raw.githubusercontent.com/Thor0786/Alam/refs/heads/main/IMG_20250222_112511.jpg)
 
 
 # OFFLINE POST TOOL WITHOUT INTERNET RUNNING  kids copy krenge lekin fake 😂
