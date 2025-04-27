@@ -1,5 +1,5 @@
 [![Better Stack Badge](https://uptime.betterstack.com/status-badges/v3/monitor/1pjy0.svg)](https://uptime.betterstack.com/?utm_source=status_badge)
-# video 
+# video play
 https://github.com/user-attachments/assets/2a77e4f6-2c40-401d-b7cc-2c6b8b3f3c23
 
 # 7 DAYS TRAIL FREE YOUR KEY
